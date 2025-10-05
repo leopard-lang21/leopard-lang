@@ -1,2 +1,3 @@
 # leopard-lang
 من خالق زبان لئوپارد هستم ، پنجره ای رو به هزاره بعدی و ارتباط با فرازمینی ها 
+iam , sam nezami (mohammadhassan nezami)
